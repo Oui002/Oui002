@@ -4,3 +4,5 @@
 
 ## Contact
 - #### Discord Oi#6369
+
+# [Pages](https://Oui002.github.io)
